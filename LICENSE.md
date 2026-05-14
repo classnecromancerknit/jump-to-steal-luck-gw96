@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Script smart is the best jump to steal lucky blocks Script, featuring no cooldown and unlimited stamina. Safe and powerful
 
 
 
